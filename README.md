@@ -2,7 +2,7 @@
 
 **Team Name:**
 
-Sheraden Fan Club
+Sheraden Fan Club (Canvas Group #14)
 
 **Team Members:**
 
